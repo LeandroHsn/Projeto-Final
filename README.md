@@ -4,4 +4,4 @@
 ###  - Isaque da Silva Silveira
 ###  - Leandro Henrick S. Nunes
 
-![Alt text](https://s8.gifyu.com/images/Projeto gif "")
+![Alt text](https://media.giphy.com/media/td4Zgz8cjKDrXixx2D/giphy.gif "")
